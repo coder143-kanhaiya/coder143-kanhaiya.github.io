@@ -1,1 +1,1 @@
-#allindianmedicalconsultant.me
+#coder143-kanhaiya.github.io
